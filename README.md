@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="260" height="260" alt="image" src="https://github.com/user-attachments/assets/6759b045-4dd2-4bd2-8eb1-a9a5bf65e459" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="260" height="260" alt="image" src="https://github.com/user-attachments/assets/40a4ac97-a21c-444b-9b33-2d71a3dcacd0" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**thisㅤguyㅤcyberㅤbulliesㅤandㅤhave** 
