@@ -15,3 +15,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**RELAX DUDE? what did i do to you? Seriously whats**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**this guys problem? bruh dude. I havent done anything**
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="260" height="260" alt="image" src="https://github.com/user-attachments/assets/88e41f0f-36c5-4406-92c7-9217730ee973" />
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**group pic~ amy . harvey**
