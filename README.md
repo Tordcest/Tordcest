@@ -21,3 +21,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="260" height="260" alt="image" src="https://github.com/user-attachments/assets/88e41f0f-36c5-4406-92c7-9217730ee973" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**group pic~ amy . harvey**
+
+
+<img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/f9da862d-720a-4ab0-aea6-a83b1f0e1500" /> its real.
+ 
